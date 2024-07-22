@@ -2,7 +2,7 @@
 - 👀 I’m interested in super Mario 64
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me I just wanna play Sm64 
+- 📫 How to reach me: I just wanna play Sm64 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: lemon 🍋 😋 👌 
 
